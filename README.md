@@ -6,5 +6,5 @@
 
 ![Facty plushie](Factyplushie.jpg)
 
-                                              ɪᴍ ꜰᴇᴇʟɪɴɢ ꜰᴀᴄᴛʏ!
+                                                  ɪᴍ ꜰᴇᴇʟɪɴɢ ꜰᴀᴄᴛʏ!
                                 
