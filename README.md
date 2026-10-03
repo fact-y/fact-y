@@ -1,7 +1,9 @@
                                 𐔌   .  ⋮ zee .ᐟ  ֹ   ₊ ꒱
  
 HI THERE you can call me zee or whatever cosplay i am using.(which is most always facty)
-</> Markdown
-![Facty plushie](Factyplushie.png)
+
+
+![Facty plushie](Factyplushie.jpg)
+
                                   ɪᴍ ꜰᴇᴇʟɪɴɢ ꜰᴀᴄᴛʏ!
                                 
