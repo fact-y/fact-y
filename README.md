@@ -1,6 +1,6 @@
                                             𐔌   .  ⋮ zee .ᐟ  ֹ   ₊ ꒱
  
-      𖹭 ₊˚⊹HI THERE you can call me zee or whatever cosplay i am using.(which is most always facty)
+      𖹭 ₊˚⊹HI THERE you can call me zee or whatever cosplay i am using.(which is most always facty or ned)
 
       ⟢ please DNC my cosplays unless i specifically give you permission to do so!
 
@@ -8,5 +8,5 @@
 
 ![Facty plushie](Factyplushie.jpg)
 
-                                                ɪᴍ ꜰᴇᴇʟɪɴɢ ꜰᴀᴄᴛʏ!
+![Neddy Ned Ned](./neddy%20ned%20ned.webp)
                                 
