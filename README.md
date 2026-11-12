@@ -4,7 +4,7 @@
 
       ⟢ please DNC my cosplays unless i specifically give you permission to do so!
 
-      ✐ᝰ feel free to sign my ata or maybe even drop a facty doodle in my gimmicks...😁
+      ✐ᝰ feel free to sign my ata or maybe even drop a facty or ned doodle in my gimmicks...😁
 
 ![Facty plushie](Factyplushie.jpg)
 
