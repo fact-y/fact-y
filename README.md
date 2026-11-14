@@ -8,5 +8,5 @@
 
 
 
-                              ![Neddy Ned Ned](./neddy%20ned%20ned.webp)
+![Neddy Ned Ned](./neddy%20ned%20ned.webp)
                                 
