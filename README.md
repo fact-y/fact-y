@@ -6,7 +6,7 @@
 
       ✐ᝰ feel free to sign my ata or maybe even drop a facty or ned doodle in my gimmicks...😁
 
-![Facty plushie](Factyplushie.jpg)
+
 
 ![Neddy Ned Ned](./neddy%20ned%20ned.webp)
                                 
