@@ -1,10 +1,10 @@
                                             𐔌   .  ⋮ zee .ᐟ  ֹ   ₊ ꒱
  
-      𖹭 ₊˚⊹HI THERE you can call me zee or whatever cosplay i am using.(which is most always facty or ned)
+      𖹭 ₊˚⊹HI THERE you can call me zee or whatever cosplay i am using.(which is most always ned)
 
       ⟢ please DNC my cosplays unless i specifically give you permission to do so!
 
-      ✐ᝰ feel free to sign my ata or maybe even drop a facty or ned doodle in my gimmicks...😁
+      ✐ᝰ feel free to sign my ata or maybe even drop a ned doodle in my gimmicks...😁
 
 
 
